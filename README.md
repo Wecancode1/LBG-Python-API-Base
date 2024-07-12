@@ -2,7 +2,7 @@
 
 
 we hope we trust we want this to work 
-In Money We Trust - Dan was here
+In Money We Trust - Dan was here!
 
 
 
