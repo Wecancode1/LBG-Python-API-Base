@@ -2,7 +2,7 @@
 
 
 we hope we trust we want this to work 
-In Money We Trust
+In Money We Trust - Dan was here!
 
 
 THIS IS A TEST WITH A NEW CHANGE BY BR 
