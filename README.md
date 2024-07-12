@@ -2,6 +2,7 @@
 
 
 we hope we trust we want this to work 
+In Money We Trust
 
 
 
